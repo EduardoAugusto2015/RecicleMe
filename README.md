@@ -26,7 +26,7 @@ Mudar o mundo. Queremos pessoa bem informadas a ponto de cuidar do planeta, pess
 * Cesar Augusto Nogueira (cesarnogueira1210@gmail.com)
 * Eduardo Augusto Petreca (audrincp@hotmail.com)
 * Leonardo Sibela (sibela26@gmail.com)
-* Rudnei Carlos de Oliveira (rhoodsk8erboy@gmail.com)
+* Vírgilio Solano (virgiliosolmag@gmail.com)
 
 
 
